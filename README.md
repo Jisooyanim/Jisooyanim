@@ -6,7 +6,7 @@ CS student
 
 Coding for fun and satisfaction
 
-* 🌍  I'm based in Cebu
+* 🌍  I'm based in Cebu, Philippines
 
 ### Skills
 
